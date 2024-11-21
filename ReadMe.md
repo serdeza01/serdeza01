@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏫 Student at Cesi as a dev<br>💼 Working at Alcatel Lucent Enterprise<br>🖥️ Working on an ia project for school<br>🏊 Swimmer<br>
+🏫 Student at Cesi as a dev<br>💼 Working at Alcatel Lucent Enterprise<br>🏊 Swimmer<br>
 
 
 ## 🌐 Socials:
